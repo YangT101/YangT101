@@ -23,7 +23,8 @@
 
 ## 📫 Contact
 - Email: hey.yangchen@gmail.com  
-- LinkedIn: [Add your link]  
+- LinkedIn: www.linkedin.com/in/yangchen-tshering-931b25146
+ 
 
 ---
 
