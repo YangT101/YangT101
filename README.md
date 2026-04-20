@@ -1,4 +1,4 @@
-# Hi, I’m Tshering 👋
+# Hi, I’m Tshering Yangchen 👋
 
 🎓 Master of Information Technology – Murdoch University  
 💻 Aspiring Web Developer & IT Support Professional  
